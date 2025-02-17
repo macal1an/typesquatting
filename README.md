@@ -1,1 +1,1 @@
-база доменов https://jmp.sh/s/MrCLhhrYnMjYNci9eM9s
+база доменов https://disk.yandex.ru/d/N45SBQRLBB80Hg
